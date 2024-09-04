@@ -1,14 +1,4 @@
+![logo](https://i.pinimg.com/originals/4f/eb/28/4feb28e1103331c11d7080aeba6a4a87.jpg)
 
-![logo](https://64.media.tumblr.com/948c3716d18398ac3df8f05d6ea81a61/8d9770f3eed181f7-9b/s250x400/4e7b83d8c088c1c1cc7c64404e99844384c79e99.pnj)
-         
-                
-                     socials.
-             - pronounpage: idollify
-                 - tt: idollify_
-               -atabook: idollify
-                 
-            c+h is fine by me as long
-        as ur not creepy / innapropriate.
-                
 
 
